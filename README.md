@@ -129,6 +129,6 @@
 
 - :comet: &nbsp;**[Github](https://github.com/amangeldi0)**
 - :airplane: &nbsp;**[Telegram](https://t.me/amangeldi0)**
-- :camera: &nbsp;**[Instagram](https://www.instagram.com/imanbekov__aa/)**
+- :camera: &nbsp;**[Instagram](https://www.instagram.com/amangeld_i0/)**
 
 <br>
